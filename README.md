@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @shyuchiha00138
-- 👀 I’m interested in html ans css
+- 👋 Hi, I’m Gustavo  Nasccimento Castro
+- 👀 I’m interested in machine learning, c/c++, python, data and other.. :) 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me gustavonascimentocastro1@gmail.com
