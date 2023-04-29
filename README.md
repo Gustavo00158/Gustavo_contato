@@ -2,7 +2,7 @@
 - 👀 I’m interested in machine learning, c/c++, python, data and other.. :) 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me gustavonascimentocastro1@gmail.com
+- 📫 How to reach me gustavonascimentocastro1@gmail.com // (91) 985585663
 
 <!---
 shyuchiha00138/shyuchiha00138 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
