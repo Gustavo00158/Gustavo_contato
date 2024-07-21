@@ -29,6 +29,7 @@ Feel free to reach out to me via email or phone:
 
 - **Email**: [gustavonascimentocastro1@gmail.com](mailto:gustavonascimentocastro1@gmail.com)
 - **Phone**: (91) 98558-5663
+- **linkdin**: www.linkedin.com/in/gustavo-nascimento-castro-b73405221
 
 Let's connect and make great things happen!
 
